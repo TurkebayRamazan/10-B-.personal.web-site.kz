@@ -1,1 +1,1 @@
-# 10-B-.personal.web-site.kz
+# 10Bwebsite.github.io
